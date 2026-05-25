@@ -19,3 +19,8 @@ https://tejaslibrary.in
 
 ## Author
 Tejas Library & Study Zone
+---
+
+### Designed & Developed By
+Krishna Kushwah  
+🔗 https://www.linkedin.com/in/krishna-kushwah-382812317/
